@@ -2,3 +2,4 @@
 
 ⏳ After a purchase, please wait 1-2 minutes for your balance to update. Still missing?
 
+🦠 Spore
