@@ -1,5 +1,2 @@
-🎁 During beta, we double your pollen with every purchase!
+💳 Want to pay with a different method? Please vote
 
-⏳ After a purchase, please wait 1-2 minutes for your balance to update. Still missing?
-
-🦠 Spore
